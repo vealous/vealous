@@ -1,6 +1,6 @@
 <p align="center">
   
-![gif](https://i.postimg.cc/g2gdqRbQ/Khong-Co-Tieu-De767-20260512101947.png) 
+![img](https://i.postimg.cc/cHM5VFqN/Khong-Co-Tieu-De771-20260512145039.png) 
 </p>
 
 <p align="center">
